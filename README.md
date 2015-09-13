@@ -1,0 +1,2 @@
+# plugin.video.DISH-NETTWORK
+CANALES PREMIER
